@@ -46,6 +46,6 @@ I’ll have a bitcoin address set up for any donations: bc1p078xynrrrp7s4f7afm0m
 
 I’ll also have a set up for anyone who’d like to work with me on all things contemplation, creativity, and consciousness. It’ll be $69.42 a month, which will include messaging me about anything anytime you want, and a weekly session together. [Link here.](https://www.patreon.com/onabenchinapark)
 
-Everything is always accessible on my [twitter](https://www.twitter.com/onabenchinapark) and [site](onabenchinapark.com). Twitter much more chaotic, site much more structured!
+Everything is always accessible on my [twitter](https://www.twitter.com/onabenchinapark) and [site](https://www.onabenchinapark.com). Twitter much more chaotic, site much more structured!
 
 Thank you! Here’s to going where the wild things are.
