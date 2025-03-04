@@ -4,7 +4,7 @@
 
 </header>
 
-## Yes, I am enlightened. Not in a classical sense. I am a very bad student. But I have seen through the illusion of self. 
+Yes, I am enlightened. Not in a classical sense. I am a very bad student. But I have seen through the illusion of self. 
 
 I am a mystic. Everything I write and think has been revealed to me through my intimate relationship with reality. I have privileged access to her secrets through our shared love language that is experience. 
 
